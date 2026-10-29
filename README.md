@@ -1,4 +1,4 @@
-# ⋆˚✿˖°(welcome to my **BUILD IN PUBLIC era**)⋆˚꩜｡
+# ⋆˚✿˖°(welcome to my **BUILD IN PUBLIC era**)⋆‧୭ ˚. ᵎᵎ｡
 <p align="center">
   <a href="https://github.com/imaketech1/github-heatmap">
     <img 
